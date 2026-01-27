@@ -8,6 +8,6 @@ Interests:
 - Cloud Computing
 
 Find me around the web 🌎:
-- Meeting People on <a href="https://twitter.com/wisdomosinach">Twitter</a>  📹 ✍🏾
+- Meeting People on <a href="https://twitter.com/osinachukwutm">Twitter</a>  📹 ✍🏾
 - Sharing updates on <a href="https://www.linkedin.com/in/wisdom-osinachi-b17694b2/">LinkedIn</a> 💼
 - Contribution <a href="https://buymeacoffee.com/wisdomosinachi">Support me</a>
